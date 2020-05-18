@@ -1,1 +1,1 @@
-# Sinteza_govora_upute
+# Sinteza govora - upute
